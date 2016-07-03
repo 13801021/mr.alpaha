@@ -236,7 +236,7 @@ spammer bot open sourced to:
 
 developed and founded
 By
-[blacklife admin](telegram.me/joker_admin_1)
+[dan1al_ak](telegram.me/dan1al_ak)
 my chanell
 [chanell blacklifeTM](telegram.me/blacklifech)
 
